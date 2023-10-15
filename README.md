@@ -1,6 +1,6 @@
 # DW Portfolio
 
-# Google Drive folder of all materials:
+# ALL PORTFOLIO MATERIALS HERE (Google Drive folder):
 https://drive.google.com/file/d/1XiUUKWqS0cv6qUeV5mk6IoR6BHok5RDW/view?usp=sharing
 
 # Google Drive Portfolio folder contents: 
